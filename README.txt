@@ -1,2 +1,0 @@
-Avery Reed
-Chicago Cubs
